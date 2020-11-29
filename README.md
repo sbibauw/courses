@@ -1,2 +1,2 @@
-# courses
-My Courses in Language Learning &amp; Teaching
+# Courses
+My courses in Language Learning &amp; Teaching
